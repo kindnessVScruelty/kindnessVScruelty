@@ -1,3 +1,5 @@
+<img width="2047" height="75" alt="tumblr_2e1f69cc40b1193b54d11a077fb2c660_43c30a5a_640" src="https://github.com/user-attachments/assets/dea67a0f-4cde-41de-a4f2-72a6fd120a67" />
+<img width="990" height="540" alt="image" src="https://github.com/user-attachments/assets/07afa4ea-452a-4b50-9583-b18357533054" />
 <img width="250" height="250" alt="tumblr_8015a606dd86432cb53817cdfe0f4ea3_bf5f225c_250" src="https://github.com/user-attachments/assets/d01d9f2a-ea09-468d-8b40-d9e3e242ea89" />
 
 $\color{green}{𝓈𝒽𝑜𝓇𝓉 𝓃𝑜𝓉𝑒:}$
@@ -16,7 +18,6 @@ $\color{green}{𝑨𝑵𝑫 \ 𝒎𝒐𝒔𝒕𝒍𝒚 \ 𝒐𝒇 \ 𝒕𝒉𝒆
 <img width="220" height="141" alt="mewgenics-zaratana" src="https://github.com/user-attachments/assets/d9600e82-18ee-49d9-8f22-997f1358b4b3" />
 
 <img width="2047" height="10" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
-<img width="2047" height="75" alt="tumblr_2e1f69cc40b1193b54d11a077fb2c660_43c30a5a_640" src="https://github.com/user-attachments/assets/dea67a0f-4cde-41de-a4f2-72a6fd120a67" />
 <img width="172" height="253" alt="jade-harley-homestuck" src="https://github.com/user-attachments/assets/1440fec7-7ab8-4015-9403-53e6932a9816" />
 <img width="210" height="170" alt="mozumoro-jade-harley" src="https://github.com/user-attachments/assets/088962c4-3ea8-41d2-8c9f-e56228cf03d8" />
 <img width="210" height="170" alt="homestuck-calliope" src="https://github.com/user-attachments/assets/514a4b1e-9bac-4153-a679-b3dbaa6ee996" />
@@ -42,3 +43,4 @@ $\color{green}{𝑨𝑵𝑫 \ 𝒎𝒐𝒔𝒕𝒍𝒚 \ 𝒐𝒇 \ 𝒕𝒉𝒆
 <img width="2047" height="10" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
 <img width="250" height="250" alt="tumblr_8015a606dd86432cb53817cdfe0f4ea3_bf5f225c_250" src="https://github.com/user-attachments/assets/d01d9f2a-ea09-468d-8b40-d9e3e242ea89" />
 <img width="2048" height="82" alt="tumblr_9c2c849c042a2338c60f2f97bc872729_6a4b3744_2048" src="https://github.com/user-attachments/assets/e0775f58-33a8-4b3c-96ae-1a248d741809" />
+$\color{green}{𝑔𝑜𝑜𝒹𝒷𝓎𝑒 \ <3}$
