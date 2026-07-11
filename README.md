@@ -1,6 +1,6 @@
 <img width="2047" height="75" alt="tumblr_2e1f69cc40b1193b54d11a077fb2c660_43c30a5a_640" src="https://github.com/user-attachments/assets/dea67a0f-4cde-41de-a4f2-72a6fd120a67" />
 <img width="990" height="540" alt="image" src="https://github.com/user-attachments/assets/07afa4ea-452a-4b50-9583-b18357533054" />
-<img width="250" height="250" alt="tumblr_8015a606dd86432cb53817cdfe0f4ea3_bf5f225c_250" src="https://github.com/user-attachments/assets/d01d9f2a-ea09-468d-8b40-d9e3e242ea89" />
+<img width="2047" height="10" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
 
 $\color{green}{𝓈𝒽𝑜𝓇𝓉 \ 𝓃𝑜𝓉𝑒:}$
 <img width="2047" height="2" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
