@@ -2,8 +2,7 @@
 <img width="990" height="540" alt="image" src="https://github.com/user-attachments/assets/50787426-cd35-4a88-a27b-1661f3d9fee7" />
 <img width="2047" height="10" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
 
-$\color{green}{𝓈𝒽𝑜𝓇𝓉 \ 𝓃𝑜𝓉𝑒:}$
-<img width="2047" height="2" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
+# $\color{green}{𝓈𝒽𝑜𝓇𝓉 \ 𝓃𝑜𝓉𝑒:}$
 $\color{green}{𝒚𝒐𝒖 \ 𝒄𝒂𝒏 \ 𝒇𝒓𝒆𝒆𝒍𝒚 \ !𝒏𝒕 \ 𝒘!𝒕𝒉 \ 𝒎𝒆 \ 𝒐𝒏 \ 𝒑𝒐𝒏𝒚 \ 𝒕𝒐𝒘𝒏 \ <3}$
 
 $\color{green}{𝒄+𝒉+𝒌 \ 𝒂𝒍𝒘𝒂𝒚𝒔,}$
@@ -44,4 +43,4 @@ $\color{green}{𝑨𝑵𝑫 \ 𝒎𝒐𝒔𝒕𝒍𝒚 \ 𝒐𝒇 \ 𝒕𝒉𝒆
 <img width="250" height="250" alt="tumblr_8015a606dd86432cb53817cdfe0f4ea3_bf5f225c_250" src="https://github.com/user-attachments/assets/d01d9f2a-ea09-468d-8b40-d9e3e242ea89" />
 <img width="2048" height="82" alt="tumblr_9c2c849c042a2338c60f2f97bc872729_6a4b3744_2048" src="https://github.com/user-attachments/assets/e0775f58-33a8-4b3c-96ae-1a248d741809" />
 
-$\color{green}{𝑔𝑜𝑜𝒹𝒷𝓎𝑒 \ <3}$
+# $\color{green}{𝑔𝑜𝑜𝒹𝒷𝓎𝑒 \ <3}$
