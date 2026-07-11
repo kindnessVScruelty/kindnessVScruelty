@@ -1,7 +1,7 @@
-<img width="213" height="285" alt="jade-harley-homestuck" src="https://github.com/user-attachments/assets/1440fec7-7ab8-4015-9403-53e6932a9816" />
+<img width="172" height="253" alt="jade-harley-homestuck" src="https://github.com/user-attachments/assets/1440fec7-7ab8-4015-9403-53e6932a9816" />
 <img width="210" height="111" alt="jade-harley-homestuck" src="https://github.com/user-attachments/assets/ca1b41d7-fd52-4f4f-8c07-f13c7746df77" />
 <img width="210" height="111" alt="homestuck-calliope" src="https://github.com/user-attachments/assets/514a4b1e-9bac-4153-a679-b3dbaa6ee996" />
-<img width="213" height="285" alt="calliope-homestuck" src="https://github.com/user-attachments/assets/0c8c2e1d-7e05-47a0-bdbd-40880fcb640f" />
+<img width="172" height="253" alt="calliope-homestuck" src="https://github.com/user-attachments/assets/0c8c2e1d-7e05-47a0-bdbd-40880fcb640f" />
 <img width="2048" height="82" alt="tumblr_812df64fec608915a9430a50dc54eff0_5b8a9c3c_500" src="https://github.com/user-attachments/assets/3016154b-b8ba-4ec0-a672-08ae6a48ff3c" />
 <img width="2048" height="82" alt="tumblr_9c2c849c042a2338c60f2f97bc872729_6a4b3744_2048" src="https://github.com/user-attachments/assets/e0775f58-33a8-4b3c-96ae-1a248d741809" />
 <img width="2047" height="148" alt="tumblr_4485439ca15556c1a219a6384314735a_5178766d_2048" src="https://github.com/user-attachments/assets/92df4a6c-8826-4880-bf22-b60aa0217a72" />
