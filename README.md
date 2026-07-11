@@ -1,5 +1,20 @@
 <img width="250" height="250" alt="tumblr_8015a606dd86432cb53817cdfe0f4ea3_bf5f225c_250" src="https://github.com/user-attachments/assets/d01d9f2a-ea09-468d-8b40-d9e3e242ea89" />
-***hi***
+
+$\color{green}{𝓈𝒽𝑜𝓇𝓉 𝓃𝑜𝓉𝑒:}$
+<img width="2047" height="2" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
+$\color{green}{𝒚𝒐𝒖 \ 𝒄𝒂𝒏 \ 𝒇𝒓𝒆𝒆𝒍𝒚 \ !𝒏𝒕 \ 𝒘!𝒕𝒉 \ 𝒎𝒆 \ 𝒐𝒏 \ 𝒑𝒐𝒏𝒚 \ 𝒕𝒐𝒘𝒏 \ <3}$
+
+$\color{green}{𝒄+𝒉+𝒌 \ 𝒂𝒍𝒘𝒂𝒚𝒔,}$
+$\color{green}{𝑬𝑿𝑪 \ 𝒘𝒉𝒆𝒏 \ ! \ 𝒉𝒂𝒏𝒈 \ 𝒐𝒖𝒕 \ \ 𝒘!𝒕𝒉 \ 𝒎𝒚 \ 𝒇𝒓!𝒆𝒏𝒅𝒔}$
+
+$\color{green}{! \ 𝒖𝒔𝒖𝒂𝒍𝒍𝒚 \ 𝒉𝒂𝒏𝒈 \ 𝒐𝒖𝒕 \ 𝒐𝒏 \ 𝒔𝒂𝒇𝒆 \ 𝒔𝒆𝒓𝒗𝒆𝒓, \ 𝑶𝑹 \ 𝒔𝒂𝒇𝒆 \ 𝒓𝒖𝒔𝒔!𝒂𝒏 \ 1 \ <3}$
+
+$\color{green}{! \ 𝒖𝒔𝒖𝒂𝒍𝒍𝒚 \ 𝒔!𝒕 \ 𝒊𝒏 \ 𝒎𝒆𝒘𝒈𝒆𝒏!𝒄𝒔 \ 𝒐𝒓 \ 𝒉𝒐𝒎𝒆𝒔𝒕𝒖𝒄𝒌 \ 𝒄𝒐𝒔𝒑𝒍𝒂𝒚}$ 
+
+$\color{green}{𝑨𝑵𝑫 \ 𝒎𝒐𝒔𝒕𝒍𝒚 \ 𝒐𝒇 \ 𝒕𝒉𝒆 \ 𝒕!𝒎𝒆 \ !'𝒎 \ 𝒉𝒂𝒏𝒈!𝒏𝒈 \ 𝒐𝒖𝒕 \ 𝒐𝒏 \ 𝒕𝒉𝒆 \ 𝒔𝒑𝒂𝒘𝒏}$
+
+<img width="220" height="141" alt="mewgenics-zaratana" src="https://github.com/user-attachments/assets/d9600e82-18ee-49d9-8f22-997f1358b4b3" />
+
 <img width="2047" height="10" alt="tumblr_db068a631756e2e708cefa4252aaaf78_7d595a8f_500" src="https://github.com/user-attachments/assets/f4ad6cef-4c6c-4933-b745-3f02cfc03310" />
 <img width="2047" height="75" alt="tumblr_2e1f69cc40b1193b54d11a077fb2c660_43c30a5a_640" src="https://github.com/user-attachments/assets/dea67a0f-4cde-41de-a4f2-72a6fd120a67" />
 <img width="172" height="253" alt="jade-harley-homestuck" src="https://github.com/user-attachments/assets/1440fec7-7ab8-4015-9403-53e6932a9816" />
