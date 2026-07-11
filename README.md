@@ -13,4 +13,5 @@
 <img width="67" height="34" alt="tumblr_693bbd7ab1c2472af1da2d0f2c8f8bcd_aed6b472_250" src="https://github.com/user-attachments/assets/a04b296e-2282-4dd8-b65a-076e3622b9df" />
 <img width="2048" height="70" alt="tumblr_2897eefa6f0d6b9b1842ce5c0c53182b_e7c676bb_2048" src="https://github.com/user-attachments/assets/74df05d6-13b8-41d6-85aa-b59a7b65f20e" />
 <img width="250" height="250" alt="tumblr_8015a606dd86432cb53817cdfe0f4ea3_bf5f225c_250" src="https://github.com/user-attachments/assets/d01d9f2a-ea09-468d-8b40-d9e3e242ea89" />
-<img width="150" height="20" alt="tumblr_b420b564f2bb8f6f64233b95d1a73684_07139681_500" src="https://github.com/user-attachments/assets/a3a276e1-e2c4-4856-a24b-979120068e5f" />
+<img width="498" height="173" alt="dirkjake-dirk-strider" src="https://github.com/user-attachments/assets/45cf8fb0-4580-47c0-8b2e-110e832988bb" /> 
+<img width="200" height="244" alt="homestuck-dirkjake" src="https://github.com/user-attachments/assets/7c894067-59eb-44ec-baa4-c19ef36dc089" />
